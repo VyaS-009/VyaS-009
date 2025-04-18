@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Blockchain technology<br>👯 I’m looking to collaborate on web 3<br>🤝 I’m looking for help with on chain development<br>🌱 I’m currently learning AI/ML<br>💬 Ask me about anything<br>⚡ Fun fact IDK anything <br>💪 But I can do everything 
+🔭 I’m currently working on Artificial Intelligence<br>👯 I’m looking to collaborate on Ai & ML<br>💬 Ask me about anything<br>💪 HardWork beats Talent When talent doesn't work hard
 
 
 ## 🌐 Socials:
